@@ -1,1 +1,1 @@
-Coding is coming~
+Code is coming~
